@@ -1,6 +1,6 @@
 ★★★★★私家女奴 网址发布页★★★★★
 
-最新地址：www.srgirl.xyz(2022年9月22日更新)
+最新地址：www.srgirl.xyz
 
 永久域名：www.srgirl.com
 
